@@ -2,4 +2,4 @@
 
 ______
 
-## [Full Video]()
+## [Full Video](https://youtu.be/pjPTemhehts)
